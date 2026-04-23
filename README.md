@@ -32,3 +32,5 @@ Mind Flayer – A powerful entity controlling the Upside Down
 Vecna – A psychological and human-like main villain
 
 **Why I Chose This Series**
+
+I chose Stranger Things not only for its fascinating and incredible story and plot, but also because it highlights the care and love the characters have for each other. It shows strong friendship and family bonds, proving that they will always be there for one another no matter what—creating a truly inseparable connection.
